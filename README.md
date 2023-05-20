@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **baokhanhle27082001@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAFjD04YNr8/6CkxDk-6E14xomidNiC-pg/edit?utm_content=DAFjD04YNr8&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](CV - AI Engineer)
+- 📄 Know about my experiences: https://www.canva.com/design/DAFjD04YNr8/6CkxDk-6E14xomidNiC-pg/edit?utm_content=DAFjD04YNr8&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
